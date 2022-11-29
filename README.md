@@ -1,0 +1,1 @@
+# C-Diziler-le-Alakal-Basit-rnek
